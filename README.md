@@ -1,9 +1,9 @@
 # Cássio Reis Barbosa
 
-### Product Designer / Front-end dev in progress
+### Designer Engineer
 
 ## Hi!
 
-### Hi! My name is Cassio and i'm currently working as a product designer at Artis Technologia developing and managing projects for medical industry.
+### Hi! My name is Cassio and i'm currently working as a Product Designer at Peerdustry developing and managing projects for manufacturing industry.
 
 ### Contact creisbarbosa@gmail.com
