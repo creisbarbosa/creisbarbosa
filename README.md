@@ -1,9 +1,9 @@
 # Cássio Reis Barbosa
 
-### Designer Engineer
+### Ai Product Mananger
 
 ## Hi!
 
-### Hi! My name is Cassio and i'm currently working as a Product Designer at Peerdustry developing and managing projects for manufacturing industry.
+### Hi! I'm Cassio Product Manager of Financial Services at @Opea based in Brasília, Brazil.
 
 ### Contact creisbarbosa@gmail.com
